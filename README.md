@@ -1,2 +1,8 @@
-# SC_302_documentacion_LN_isaac2
+# SC\_302\_documentacion\_LN\_isaac2
+
 segundo intento
+
+
+
+estoy con el profe en linea 
+
